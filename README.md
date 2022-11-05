@@ -1,1 +1,1 @@
-Trekking off into the living world.:)
+Trekking off into the living world. :)
